@@ -1,4 +1,4 @@
-# 
+# Personalizado Process Explorer complementos para Mac OS | Nuevo Process Explorer complementos para PC Windows. Con recuperación de archivos y optimización de refrigeración — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
